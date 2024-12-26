@@ -1,0 +1,1 @@
+- Joffrey Baratheon (mort par empoisonnement, non tué par Arya)
