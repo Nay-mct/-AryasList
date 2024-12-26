@@ -1,1 +1,2 @@
 - Joffrey Baratheon (mort par empoisonnement, non tué par Arya)
+- Meryn Trant (tué par Arya)
